@@ -21,3 +21,4 @@ https://ballbang-go76.com/
 https://br0si.ballbang-app21.com/
 https://starrepo444.github.io/3xgames/
 https://fategames.netlify.app/
+https://starrepo444.github.io/Fate/
